@@ -1,2 +1,2 @@
 # NewLife
-To be a  really coder
+To be a  really coder is  hard and difficult
